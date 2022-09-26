@@ -1,4 +1,1 @@
-my name is Luis Rivera 
-I lived in the Bronx my whole life
-I am 
-hello world
+My name is Luis Rivera, I was born and raised in the Bronx. Both my parents come from Mexico But met in NY. I have 2 siblings and a dog that i consider a little brother named Chico. My pronounes are he/him
