@@ -1,1 +1,1 @@
-My name is Luis Rivera, I was born and raised in the Bronx. Both my parents come from Mexico But met in NY. I have 2 siblings and a dog that i consider a little brother named Chico. My pronounes are he/him
+My name is Luis Rivera, I was born and raised in the Bronx. Both my parents come from Mexico But met in NY. I have 2 siblings and a dog that i consider a little brother named Chico. My pronounes are he/him. I also want to add on that i am a very quiet person.
